@@ -1,6 +1,6 @@
-![KakaoTalk_20250513_203542649](https://github.com/user-attachments/assets/74a1e6da-4086-41ba-8753-5364586b71e0)
 
 
-https://github.com/user-attachments/assets/377f5e1f-fbe9-4c4a-9fac-c76f40a24b2f
+https://github.com/user-attachments/assets/de571e98-7932-4921-b17a-eb962b49cf4d
 
-![와이파이 연결](https://github.com/user-attachments/assets/3d309956-eadc-464e-8406-661c2191cb60)
+![KakaoTalk_20250513_203542649](https://github.com/user-attachments/assets/056ce546-fe56-4e63-8faf-c3d7278be0ad)
+![와이파이 연결](https://github.com/user-attachments/assets/9fa89350-9e26-42e8-9613-79b33c8b0edc)
